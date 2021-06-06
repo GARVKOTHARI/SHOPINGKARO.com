@@ -1,0 +1,1 @@
+# SHOPINGKARO.com
